@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @tawnypelt-supremacy
 - 👀 I’m interested in Clangen + other Warrior Cat Games!
 - 🌱 I’m currently learning the basics of coding
-- 😄 Pronouns: she/they (they pronouns are preferred!)
 - ⚡ Fun fact: I'm on a school computer, so I'm only available during weekdays!
 - 📝 I am a WRITER, please be patient as I am a complete newcomer <3
 <!---
